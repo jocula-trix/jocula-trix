@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/c0954663-49d8-4b7a-9863-a0c624af8d02)
+<img width="950" height="325" src="https://github.com/user-attachments/assets/c0954663-49d8-4b7a-9863-a0c624af8d02">
 
 <p align="center"> jocula_trix ~ they/them
 <p align="center"> call me jocula or jo
@@ -17,4 +17,4 @@
 <p align="center"> bad omens ~ sleep token ~ spiritbox
 <p align="center"> see strwpg 4 more
 
-![image](https://github.com/user-attachments/assets/cba59f7d-02a8-4cba-a8f6-5886830550ef)
+<gif width="950" height="400" src="https://github.com/user-attachments/assets/fd06a65c-53ce-4b8b-991c-06011321d7f9">
