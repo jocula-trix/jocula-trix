@@ -7,11 +7,15 @@ jocula_trix ~ they/them
 ### PT Interaction
 basic dni criteria
 int/w2i, i have a hard time initiating
-pls dncuf unless we're conversating
+dncuf or unless we're conversating
+will block if u make me extremely uncomfortable
+i dont rp under any circumstances, i only chat
+
 
 ### Interests
 * Trigun
 * Hoyoverse
 * Marvel
 * Sleep Token
-* see [strawpage](https://lunaticpt.straw.page) for more~
+
+![image](https://github.com/user-attachments/assets/1065d37c-93f5-4b23-aa01-64b8feb7da38)
