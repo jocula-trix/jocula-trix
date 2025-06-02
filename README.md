@@ -11,7 +11,7 @@ pls dncuf unless we're conversating
 
 ### Interests
 * Trigun
-* Honkai Star Rail
+* Hoyoverse
 * Marvel
 * Sleep Token
 * see [strawpage](https://lunaticpt.straw.page) for more~
