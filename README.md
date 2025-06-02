@@ -2,8 +2,14 @@
 
 
 jocula_trix ~ they/them
+> u can call me jocula or jo
 
-## Interests
+### PT Interaction
+basic dni criteria
+int/w2i, i have a hard time initiating
+pls dncuf unless we're conversating
+
+### Interests
 * Trigun
 * Honkai Star Rail
 * Marvel
