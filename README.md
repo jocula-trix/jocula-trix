@@ -2,7 +2,7 @@
 
 ~
 <p align="center"> jocula_trix ~ they/them
-<p align="center"> call me jocula or jo
+<p align="center"> call me jocula, jo or jolyne
 ~
 <p align="center"> ~ pt interactions ~
 <p align="center"> basic dni criteria
@@ -17,3 +17,5 @@
 <p align="center"> marvel mcu & moon knight comics
 <p align="center"> bad omens ~ sleep token ~ spiritbox
 <p align="center"> see strwpg 4 more
+
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216&count={5})
