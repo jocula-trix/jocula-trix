@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/8cce4b61-4f5b-4755-8897-c87952497ead) <br/>
+<p> <gif width="460" height="300" src="https://github.com/user-attachments/assets/a5698959-096f-4e60-be52-0281ffd4e613)"> </p>
+
 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 ~ they/them <br/>
 call me jocula, jo or jolyne <br/>
 <br/>
