@@ -18,4 +18,4 @@
 <p align="center"> bad omens ~ sleep token ~ spiritbox
 <p align="center"> see strwpg 4 more
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216&count={5})
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
