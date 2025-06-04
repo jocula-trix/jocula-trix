@@ -10,11 +10,12 @@ call me jocula, jo or jolyne <br/>
 - will block if u make me extremely uncomfortable
 
 ~ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
-- trigun ~ link click ~ jjba <br/>
-- hoyoverse ~ dmc ~ persona 3 <br/>
-- marvel mcu & moon knight comics <br/>
-- bad omens ~ sleep token ~ spiritbox <br/>
+- trigun ~ link click ~ jjba
+- hoyoverse ~ dmc ~ persona 3
+- marvel mcu & moon knight comics
+- bad omens ~ sleep token ~ spiritbox
 - more on strawpage
 <br/>
 
+~ 𝒎𝒚 𝒔𝒑𝒐𝒕𝒊𝒇𝒚 𝒂𝒄𝒄 ~ <br/>
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
