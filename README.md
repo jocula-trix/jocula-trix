@@ -4,8 +4,8 @@ call me jocula, jo or jolyne <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 - basic dni criteria
 - i dont rp under any circumstances
-- sometimes im offtab, i may miss ur msgs
-- dont cuddle unless friends or we're conversing
+- sometimes offtab, i may miss ur ints
+- i wont talk til u talk or unless i approach
 - dont kiss or make it weird, no nsfw
 - will block if u make me extremely uncomfortable
 
