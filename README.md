@@ -1,5 +1,5 @@
-𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 ~ they/them <br/>
-call me jocula, jo or jolyne <br/>
+𝒍𝒖𝒏𝒂_𝒕𝒊𝒄 / 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 ~ they/them <br/>
+call me luna, jocula, jolyne or jo <br/>
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 - basic dni criteria
