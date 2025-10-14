@@ -3,15 +3,15 @@ call me luna, jocula, jolyne or jo <br/>
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 - basic dni criteria
-- i dont rp under any circumstances
-- sometimes offtab, i may miss ur ints
-- i wont talk til u talk or unless i approach
-- dont kiss or make it weird, no nsfw
-- will block if u make me extremely uncomfortable
+- NO RP under any circumstances
+- semi-afk/offtab a lot, please be patient
+- if u approach me, i will not talk til u talk
+- no nsfw, c+h+k = friends only
+- will block if u make me uncomfortable
 
 ~ 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
 - trigun ~ link click ~ jjba
-- hoyoverse ~ dmc ~ persona 3
+- hoyoverse ~ dmc ~ persona 3 reload
 - marvel mcu & moon knight comics
 - bad omens ~ sleep token ~ spiritbox
 - more on strawpage
