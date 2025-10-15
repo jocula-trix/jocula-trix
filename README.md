@@ -4,7 +4,7 @@
 - i only understand english
 - NO RP under any circumstances
 - semi-afk/offtab a lot, please be patient
-- if u approach me, i will not talk til u talk
+- 12 & under dni get off this game bro
 - no ships, romantics or nsfw convos
 - c+h+k preferrably for friends only
 - will block/ignore u if im uncomfortable
