@@ -1,6 +1,7 @@
 𝒍𝒖𝒏𝒂_𝒕𝒊𝒄 / 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 ~ they/them <br/>
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
+- i only understand english
 - NO RP under any circumstances
 - semi-afk/offtab a lot, please be patient
 - if u approach me, i will not talk til u talk
