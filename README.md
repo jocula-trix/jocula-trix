@@ -6,7 +6,7 @@ C+H+K 👥 | DNC ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
 - will block/ignore u if im uncomfortable
 
-~ 𝒔𝒆𝒆 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 𝒐𝒏 𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆 ~
+~ 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 ~
 <br/>
 
 ~ 𝒔𝒑𝒐𝒕𝒊𝒇𝒚 ~ <br/>
