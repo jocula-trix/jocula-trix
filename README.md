@@ -2,7 +2,6 @@
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 C+H+K 👥 | copy ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
-- 12 & under dni get off this game bro
 - semi-afk/offtab a lot, w2i encouraged
 - will block/ignore u if im uncomfortable
 
