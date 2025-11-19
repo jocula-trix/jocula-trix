@@ -6,8 +6,10 @@ C+H+K 👥 | copy ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
 - will block/ignore u if im uncomfortable
 
-~ 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 ~
-<br/>
+~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
+mario bros., trigun, hsr, gachiakuta, dmc, marvel
+
+𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 + 𝒐𝒕𝒉𝒆𝒓 𝒍𝒊𝒔𝒕𝒆𝒅 𝒔𝒊𝒕𝒆𝒔!
 
 ~ 𝒔𝒑𝒐𝒕𝒊𝒇𝒚 ~ <br/>
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
