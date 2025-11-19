@@ -11,5 +11,4 @@ mario bros., trigun, hsr, gachiakuta, dmc, marvel
 
 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 + 𝒐𝒕𝒉𝒆𝒓 𝒍𝒊𝒔𝒕𝒆𝒅 𝒔𝒊𝒕𝒆𝒔!
 
-~ 𝒔𝒑𝒐𝒕𝒊𝒇𝒚 ~ <br/>
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
