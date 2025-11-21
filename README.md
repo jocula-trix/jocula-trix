@@ -1,4 +1,4 @@
-𝒍𝒖𝒏𝒂_𝒕𝒊𝒄 / 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 ~ they/them <br/>
+𝒍𝒖𝒏𝒂_𝒕𝒊𝒄 / 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 / 𝒅𝒆𝒍𝒊𝒓𝒊𝑳𝒚𝒔𝒔 ~ they/them <br/>
 call me luna, jocula, jo or lyss <br/>
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
