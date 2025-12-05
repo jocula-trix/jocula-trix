@@ -3,7 +3,7 @@
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 C+H+K 👥 | copy ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
-- likely to shut down in big groups
+- i have a hard time approaching, so pls feel free to int!
 - will block/ignore u if im uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
