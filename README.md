@@ -4,7 +4,6 @@
 C+H+K 👥 | copy ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
 - i have a hard time approaching, so i enjoy when ppl int
-- i wont friend u if we dont talk first
 - will block/ignore u if im made uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
