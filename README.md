@@ -1,13 +1,13 @@
 𝒍𝒖𝒏𝒂_𝒕𝒊𝒄 / 𝒋𝒐𝒄𝒖𝒍𝒂_𝒕𝒓𝒊𝒙 / 𝒅𝒆𝒍𝒊𝒓𝒊𝑳𝒚𝒔𝒔 ~ they/them <br/>
 <br/>
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
-C+H+K 👥 | copy ❌ | inspo ✅ | RP/ERP ❌ | ships ❌
+C+H+K 👥 | copy ❌ | inspo ✅ | RP/eRP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
-- i have a hard time approaching, so i enjoy when ppl int
+- dont be afraid to come up, i rarely int first cuz im scared lol
 - will block/ignore u if im made uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
-mario bros., trigun, hsr, gachiakuta, dmc, marvel
+mario bros., trigun, hsr, marvel
 
 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 + 𝒐𝒕𝒉𝒆𝒓 𝒍𝒊𝒔𝒕𝒆𝒅 𝒔𝒊𝒕𝒆𝒔!
 
