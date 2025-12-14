@@ -7,7 +7,7 @@ C+H+K 👥 | copy ❌ | inspo ✅ | RP/eRP ❌ | ships ❌
 - will block/ignore u if im made uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
-mario bros., trigun, hsr, marvel
+mario bros., trigun, hsr, marvel & sleep token
 
 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 + 𝒐𝒕𝒉𝒆𝒓 𝒍𝒊𝒔𝒕𝒆𝒅 𝒔𝒊𝒕𝒆𝒔!
 
