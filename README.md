@@ -5,7 +5,7 @@
 ~ 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔 ~ <br/>
 C+H+K 👥 | copy ❌ | inspo ✅ | RP/eRP ❌ | ships ❌
 - semi-afk/offtab a lot, w2i encouraged
-- dont be afraid to come up, i rarely int first cuz im scared lol
+- dont be afraid to come up, i rarely int first cuz im nervous lol
 - will block/ignore u if im made uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
