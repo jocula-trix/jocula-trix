@@ -9,7 +9,8 @@ C+H+K 👥 | copy ❌ | inspo ✅ | RP/eRP ❌ | ships ❌
 - will block/ignore u if im made uncomfortable
 
 ~ 𝒎𝒂𝒊𝒏 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 ~ <br/>
-mario bros., trigun, hsr, marvel & sleep token <br/>
+mario bros., trigun, hsr, marvel, dmc, sleep token + more <br/>
+vash, boothill, moon knight, nero <3
 𝒔𝒆𝒆 𝒎𝒐𝒓𝒆 𝒐𝒏 𝒄𝒂𝒓𝒓𝒅 + 𝒐𝒕𝒉𝒆𝒓 𝒔𝒊𝒕𝒆𝒔!
 
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
