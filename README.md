@@ -10,14 +10,14 @@
 - 12 and under get off this game lil bro
 - homophobes racists bigots, u get the gist
 - if ur looking to roleplay (both SFW & NSFW)
-- proship or whichever ships r intentionally weird
+- proship or wtvr ships r intentionally weird
 ## 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 / 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔
-♡ mario bros. <br/>
-♡ trigun <br/>
-♡ honkai star rail <br/>
-♡ marvel <br/>
-♡ devil may cry <br/>
-♡ sleep token <br/>
+☆ mario bros. <br/>
+☆ trigun <br/>
+☆ honkai star rail <br/>
+☆ marvel <br/>
+☆ devil may cry <br/>
+☆ sleep token <br/>
 ### 𝒇𝒂𝒗 𝒄𝒉𝒂𝒓𝒂𝒔
 ♡ vash <br/>
 ♡ boothill <br/>
