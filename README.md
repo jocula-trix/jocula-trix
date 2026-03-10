@@ -4,6 +4,7 @@
 - i dont initiate convos cuz im nervous lol pls come over if u want
 - semi-afk/offtab a lot, w2i encouraged
 - don't copy skins, inspo is fine w me
+- c+h is fine, but no kiss under any circumstance
 - i personally dont do ship but idm if u ship fictional charas, so long as ur chill
 - will ignore/hide/block u if im made uncomfortable
 ### 𝒅𝒏𝒊
