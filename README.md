@@ -8,7 +8,7 @@
 - i personally dont ship characters, idm if u ship as long as ur chill abt it
 - will ignore/hide/block u if im made uncomfortable
 ### 𝒅𝒏𝒊
-- 12 and under get off this game lil bro
+- 12 and under get off this game lil bro.
 - homophobes racists bigots, u get the gist
 - roleplayers (both SFW & NSFW)
 - irlships, proships or wtvr is intentionally weird
