@@ -24,6 +24,6 @@
 ♡ vash <br/>
 ♡ boothill <br/>
 ♡ moon knight <br/>
-♡ dante/nero (i cant choose btwn them) <br/>
+♡ dante/nero <br/>
 
 ![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
