@@ -9,7 +9,7 @@
 - will ignore/hide/block u if im uncomfortable
 ### 𝒅𝒏𝒊
 - 12 and under get off this game lil bro.
-- homophobes racists bigots, u get the gist
+- bullies and bigots, js be kind
 - insistent roleplayers (both SFW & NSFW)
 - irlships, proships or wtvr is intentionally weird
 ## 𝒇𝒂𝒏𝒅𝒐𝒎𝒔 / 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔
