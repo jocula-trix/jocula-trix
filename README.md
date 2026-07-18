@@ -3,8 +3,8 @@
 ## 𝒑𝒕 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔
 - i cant initiate convos easily, pls come over to chat if u want
 - semi-afk/offtab a lot, w2i encouraged when afk
-- don't copy my original skins, inspo is fine w me
-- c+h is ok, no kiss under any circumstance
+- don't copy original skins, inspo is fine
+- c+h is ok only if u talk to me, no kiss
 - i personally dont ship characters, idm ships as long as ur chill abt it
 - will ignore/hide/block u if im uncomfortable
 ### 𝒅𝒏𝒊
