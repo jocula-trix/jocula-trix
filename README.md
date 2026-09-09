@@ -26,4 +26,4 @@
 ♡ moon knight <br/>
 ♡ dante/nero <br/>
 
-![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=luna_tic1216)
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=luna_tic1216&theme=transparent&width=700&time=0&unique=1&now_playing=0&progress=0&duration=1)
